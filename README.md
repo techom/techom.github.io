@@ -1,1 +1,0 @@
-techom.github.io
